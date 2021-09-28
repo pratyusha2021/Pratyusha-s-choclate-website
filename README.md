@@ -1,1 +1,1 @@
-# Pratyusha-s-choclate-website
+# Pratyusha-s-chocolate-website
